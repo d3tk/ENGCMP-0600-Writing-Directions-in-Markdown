@@ -30,8 +30,9 @@ Some dogs bite and that hurts. Try not to get bit.
 ### 8. Make your dog sit then lay down.
   * This is a form of discipline I use, you do not have to but, it is highly reccomended.
 ### 9. Place the bowl down and **DO NOT** let your dog eat.
-  * if your dog tried to eat, pick the bowl up and start at Step 8. again until they do.
+  * If your dog tried to eat, pick the bowl up and start at Step 8. again until they do.
 ### 10. Make the dog wait 3 minutes.
 ### 11. Signal to the dog that they may eat.
+  * I do this by saying "ok" but you may develope your own method.
 
 ## Congrats your Dog is now fed!
