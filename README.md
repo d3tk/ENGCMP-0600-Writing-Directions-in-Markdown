@@ -1,4 +1,4 @@
-#Introduction
+# Introduction
 Does your dog bark a lot at around breakfast and dinner time? Is your dog super skinny? Here is a simple solution, **FEED IT**. 
 Below are directions in feeding your dog. 
 
